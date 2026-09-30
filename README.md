@@ -9,6 +9,6 @@ I have a lot of passions
 1. Cooking
 1. Going out with my friends
 1. Watching great films. My favorites are Whiplash and Nightcrawler. 
-1. Russian literature. I just finished reading Bulgakov's _[Master's and Margarita](https://en.wikipedia.org/wiki/The_Master_and_Margarita)_.
+1. Russian literature. I just finished reading Bulgakov's _[Master and Margarita](https://en.wikipedia.org/wiki/The_Master_and_Margarita)_.
 
 But overall, I love learning new, preferably hard, things for the love of the game, and this program seemed like the perfect next challenge. 
